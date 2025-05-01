@@ -1,6 +1,6 @@
 # Hi there, I'm Steven Alonzo!
 
-I'm a creative developer, storyteller, and founder of **Humanity**, an emotional wellness app built to inspire acts of kindness and track the ripple effect of compassion across the globe.
+I'm a creative developer, author, music producer, and founder of **Humanity**, an emotional wellness app built to inspire acts of kindness and track the ripple effect of compassion across the globe.
 
 ---
 
